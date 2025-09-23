@@ -11,7 +11,7 @@
 
 <div align="right">
   
-  ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Xerow23n&show_icons=true&theme=dark)
+  ![Jackson's GitHub stats](https://github-readme-stats.vercel.app/api?username=Xerow23n&show_icons=true&theme=synthwave)
 </div>
 
 
