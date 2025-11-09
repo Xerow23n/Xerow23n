@@ -6,7 +6,7 @@
 - Primary email 📧: zx245ero@gmail.com
 - Backup ✉ : jacksonrjsgm47@gmail.com
 - BlueSky 🦋: bxl4a2auj.bsky.social
-- LinkedIn 🔗: www.linkedin.com/in/jackson-al-raja-singam-0wo
+- LinkedIn 🔗: www.linkedin.com/in/jackson-al-raja-singam-0wo (Recently got hacked by somebody unfortunately unable to recover QДQ)
 
 
 
